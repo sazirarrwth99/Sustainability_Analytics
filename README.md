@@ -1,2 +1,0 @@
-# Sustainability_Analytics
-Sustainability Analytics Projektgruppe PM
